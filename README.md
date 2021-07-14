@@ -1,8 +1,7 @@
 20年UESTC美赛模拟赛期间创建并结束该项目
 
-
-更多信息可联系作者QQ：1303715662
-或相应QQ邮箱
+赛题可从这里下载：https://wwi.lanzoui.com/iDkDGrf318j
+更多信息可联系作者邮箱：tomas_wade@yeah.net
 
 
 
